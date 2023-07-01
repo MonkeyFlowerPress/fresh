@@ -18,3 +18,4 @@ You can reach us at monkeyflowerpress@gmail.com. We may be slow to reply…
 
 ![yellow-pressed-monkey-flower.jpg](monkey-press-yellow.jpeg)
 
+*Diplacus aurantiacus is commonly known as monkey flower or sticky monkey-flower. It's a flowering perennial plant that grows in a subshrub form, native to southwestern North America from southwestern Oregon south through most of California and into Baja, Mexico. This genus has been subject to taxonomic debate. - [Calscape](https://calscape.org/Diplacus-aurantiacus-())*
