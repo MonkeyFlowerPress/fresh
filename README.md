@@ -2,7 +2,7 @@
 
 # Monkey Flower Press
 
-- **2025 Calendar & Coloring Book** (2025) - Using their daily diary postcards (2024), Isabela created a 2025 [calendar](calendar-25.JPEG). Each month features a thematic collage created by either Isabela or Karen, using the work of the other. It includes all the important holidays, like Unscented Lotion Day, Palmier Day and Test Your Pens Day.
+- **Calendar & Coloring Book** (2025) - Using their daily diary postcards (2024), Isabela created a 2025 [calendar](calendar-25.JPEG) that can double as a coloring book. Each month features a thematic collage created by either Isabela or Karen, using the work of the other. It includes all the important holidays, like Unscented Lotion Day, Palmier Day and Test Your Pens Day.
 - **Daily Postcards** (2024) - Starting in the spring, Karen and Isabela made a diary card a day (more or less) and mailed them to each other in batches. Fun mail! Here's an example from [Isabela](Sept14-24.jpg), and another from [Karen](May18-24.jpg).
 - **Matches** (2023) - Isabela spearheaded this incendiary postcard project, inspired by Diamond Strike-on-Box matches, and perfect for bringing in the new year with mixed emotions. There are four flames to love: [sleepy](pc-sleepy.jpg), [smokin'](pc-smokin.jpg), [dyno](pc-blows.jpg) and [glad](pc-glad.jpg). 
 - **Plants and Pollinators Garden Map** (2023) - Karen held a garden party and Isabela suggested and created an [illustrated map and key](garden-map_final.png) for guests to enjoy. Karen wrote an imagined conversation for the [flip side](garden-convo.pdf). Plant native plants!
