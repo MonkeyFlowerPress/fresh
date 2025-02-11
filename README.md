@@ -2,15 +2,15 @@
 
 # Monkey Flower Press
 
-- **2025 Calendar** (2024) - Using their diary postcards, Isabela created a 2024 [calendar](calendar-24.JPEG). Each month features a thematic collage created by either Isabela or Karen, using the work of the other. It includes all the important holidays, like Unscented Lotion Day, Palmier Day and Test Your Pens Day. 
-- **Postcards** (2024) - Starting in the spring, Karen and Isabela made a diary card a day (more or less) and mailed them to each other in batches. Fun mail! Here's an example from [Isabela](Sept14-24.jpg), and another from [Karen](May18-24.jpg).
+- **2025 Calendar & Coloring Book** (2025) - Using their daily diary postcards (2024), Isabela created a 2025 [calendar](calendar-25.JPEG). Each month features a thematic collage created by either Isabela or Karen, using the work of the other. It includes all the important holidays, like Unscented Lotion Day, Palmier Day and Test Your Pens Day. It doubles as a [coloring book](color-calendar.JPG).
+- **Daily Postcards** (2024) - Starting in the spring, Karen and Isabela made a diary card a day (more or less) and mailed them to each other in batches. Fun mail! Here's an example from [Isabela](Sept14-24.jpg), and another from [Karen](May18-24.jpg).
 - **Matches** (2023) - Isabela spearheaded this incendiary postcard project, inspired by Diamond Strike-on-Box matches, and perfect for bringing in the new year with mixed emotions. There are four flames to love: [sleepy](pc-sleepy.jpg), [smokin'](pc-smokin.jpg), [dyno](pc-blows.jpg) and [glad](pc-glad.jpg). 
 - **Plants and Pollinators Garden Map** (2023) - Karen held a garden party and Isabela suggested and created an [illustrated map and key](garden-map_final.png) for guests to enjoy. Karen wrote an imagined conversation for the [flip side](garden-convo.pdf). Plant native plants!
 - **Monkey Flower Poem** (2021-2022) - Our founding collaboration took a variety of forms, including a [bookmark](bookmark-stack.jpeg), [zine](mfp_zine.jpg) and [full page art submission](mfp_fullpage_monkeyflower_v4.pdf) for the Theodore Payne Native Plant Garden Tour Guide. You may happen upon a [forgotten bookmark](bookmark_back.jpg) inside select titles at the San Luis Obispo Public Library. 
 
 ## The Slow Pressers
 
-[**Karen**](karen-photo.jpeg) enjoys her habitat garden. She also reads, writes, dances and travels.
+[**Karen**](karen-photo.jpeg) enjoys her habitat garden. She also likes to read, write, dance and travel.
 
 [**Isabela**](isabela-photo.jpeg) is—among other things—a writer of lists, adorer of stories, gatherer of her cat’s whiskers, and questioner of where all the dust bunnies in her room keep coming from.
 
