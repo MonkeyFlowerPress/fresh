@@ -2,7 +2,7 @@
 
 # Monkey Flower Press
 
--**Ice Breaker Guide for Business** (2025) - Inspired by real-life team building, Karen and Isabela dreamt up these [ice breakers](breakice.JPG) while meeting for Thai food on their respective lunch breaks. Use these innovative prompts to spark lively synergies at your next meeting.
+- **Ice Breaker Guide for Business** (2025) - Inspired by real-life team building, Karen and Isabela dreamt up these [ice breakers](breakice.JPG) while meeting for Thai food on their respective lunch breaks. Use these innovative prompts to spark lively synergies at your next meeting.
 - **Calendar & Coloring Book** (2025) - Using their daily diary postcards (2024), Isabela created a [calendar](calendar-25.JPEG) that can double as a coloring book. Each month features a thematic collage created by either Isabela or Karen, using the work of the other. It includes all the important holidays, like Unscented Lotion Day, Palmier Day and Test Your Pens Day.
 - **Daily Postcards** (2024) - Starting in the spring, Karen and Isabela made a diary card a day (more or less) and mailed them to each other in batches. Fun mail! Here's an example from [Isabela](Sept14-24.jpg), and another from [Karen](May18-24.jpg).
 - **Matches** (2023) - Isabela spearheaded this incendiary postcard project, inspired by Diamond Strike-on-Box matches, and perfect for bringing in the new year with mixed emotions. There are four flames to love: [sleepy](pc-sleepy.jpg), [smokin'](pc-smokin.jpg), [dyno](pc-blows.jpg) and [glad](pc-glad.jpg). 
@@ -11,7 +11,7 @@
 
 ## Shows & Events
 
-- **Ontario Art Book Fair** Ontario Museum of History & Art, Ontario, CA (2025)
+- **Ontario Art Book Fair** - Ontario Museum of History & Art, Ontario, CA (2025)
 
 ## The Slow Pressers
 
