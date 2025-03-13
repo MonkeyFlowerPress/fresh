@@ -11,7 +11,7 @@
 
 ## Shows & Events
 
-- **Ontario Art Book Fair** - Ontario Museum of History & Art, Ontario, CA (2025)
+- **Ontario Art Book Fair** - We appear as "Collective Three" at Ontario Museum of History & Art, Ontario, CA (2025)
 
 ## The Slow Pressers
 
