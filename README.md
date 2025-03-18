@@ -16,7 +16,7 @@
 
 ## The Slow Pressers
 
-[**Karen**](karen-photo.jpeg) enjoys tales of espionage, a good groove and anonymity. 
+[**Karen**](karen-photo.jpeg) enjoys tales of espionage, a good groove and hiding in gardens. 
 
 [**Isabela**](isabela-photo.jpeg) is—among other things—a writer of lists, adorer of stories, gatherer of her cat’s whiskers, and questioner of where all the dust bunnies in her room keep coming from.
 
